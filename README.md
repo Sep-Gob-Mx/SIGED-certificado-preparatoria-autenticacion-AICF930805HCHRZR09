@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AICF930805HCHRZR09
+AICF930805HCHRZR09
